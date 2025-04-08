@@ -15,3 +15,6 @@ I love age gap, etc ideas and its meant for coping only, I'm sorry it's the way 
 - Ginger is 21 in my au, Cosmo is also 21 but a couple months younger, Vee is 28
 - Cosmo and Ginger are second cousins to make it legal
 - Created nicknames for each other, Cosmo likes the nickname Hon, or Dear; Meanwhile Ginger likes to be called Gingy, Babe, Dollface.
+
+
+![431546398-1d7991b4-bf27-4d8a-bb01-77c13c0ba440](https://github.com/user-attachments/assets/367fd29d-6d83-4a77-b198-df24be02a1fb)
