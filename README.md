@@ -17,5 +17,6 @@ I love age gap, etc ideas and its meant for coping only, I'm sorry it's the way 
 - Created nicknames for each other, Cosmo likes the nickname Hon, or Dear; Meanwhile Ginger likes to be called Gingy, Babe, Dollface.
 
 
-![431546398-1d7991b4-bf27-4d8a-bb01-77c13c0ba440  THIS IS SATIRE AND RAGE BAIT](https://github.com/user-attachments/assets/36fe4015-62b8-4d57-b257-bffa8f39952d)
+![431546398-1d7991b4-bf27-4d8a-bb01-77c13c0ba440  THIS IS SATIRE AND RAGE BAIT](https://github.com/user-attachments/assets/5b53127f-7aa1-4510-b978-c25e15860695)
+
 
